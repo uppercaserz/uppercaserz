@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @uppercaserz
+- 👀 I’m interested in making utilties
+- 🌱 I’m CS major
+- 📫 uppercaserz@gmail.com
+- Created this account at 29/03/2024
